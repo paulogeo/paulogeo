@@ -2,7 +2,7 @@
 
 **`Geotechnologies`**
 
-Hi there! My name is Paulo Almeida. Currently working on teaching Geotechlonogies and researching Urban Mobility and Accessibility Equity. For more information, please, take a look at my [Curriculum vitae](http://lattes.cnpq.br/4223679245702863).
+Hi there! My name is Paulo Correia. Currently working on Geotechlonogies applied to Urban Mobility and Accessibility Equity. For more information, please, take a look at my [Curriculum vitae](http://lattes.cnpq.br/4223679245702863) and/or my [ResearchGate](https://www.researchgate.net/profile/Paulo-Correia-Jr-2?ev=hdr_xprf) profile.
 
 
 <p align="left">
